@@ -1,6 +1,6 @@
 微信模拟器+银行模拟器+40多G真实用户数据
 
-![Uploading image.png…]()
+<img width="4096" height="2882" alt="GTvIeEQbkAAOnt5" src="https://github.com/user-attachments/assets/2ec601bd-860d-4adb-ab86-448be24ce515" />
 
 
  [**下载手机版**](https://zyb40.wordpress.com/)
