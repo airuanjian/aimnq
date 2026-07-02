@@ -2,9 +2,10 @@
 
 <img width="4096" height="2882" alt="GTvIeEQbkAAOnt5" src="https://github.com/user-attachments/assets/2ec601bd-860d-4adb-ab86-448be24ce515" />
 
-软件和教程已打包成zip文件，手机电脑均有对应版本，免费自取
+手机电脑均有对应版本，免费自取
 
- [**免费下载**](https://ziyuan.univer.se/)
+链接：https://pan.wo.cn/s/1D1A5W91862
+提取码：7Hxa
 
 微信聊天模拟器是一款实用有趣的模拟对话软件，该软件给用户提供了丰富的聊天背景和表情包选择，让用户的对话更加生动有趣，用户还可以根据自己的喜好，随时更换聊天背景，让对话界面焕然一新。
 
